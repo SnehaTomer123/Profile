@@ -11,7 +11,7 @@
 
 
 
-- 📫 How to reach me **snehatomer62@gmail.com**
+ 📫 How to reach me **snehatomer62@gmail.com**
 
 
 
